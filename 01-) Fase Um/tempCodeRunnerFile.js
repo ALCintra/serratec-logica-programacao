@@ -1,0 +1,1 @@
+ mesmo assim, quero que essas poucas palavras entrem em seu coração e façam você entender.");
